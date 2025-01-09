@@ -1,1 +1,1 @@
-# website
+This is the website from WalnutGaming (Abbreivated as "WG") YouTube channel, who creates multiple gaming/music content. In this website everyone will be able to access my resources, download free-to-use videos, and welcome my other social platforms.
